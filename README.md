@@ -13,6 +13,30 @@
 
 
 
-![](https://github.com/houran255/Bejeweled_houran/blob/master/README_Assets/%E6%8E%92%E8%A1%8C.png "")
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/1.png "")
 
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/2.png "")
 
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/3.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/4.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/5.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/6.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/7.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/8.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/9.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/10.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/11.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/12.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/13.png "")
+
+![](https://github.com/houran255/market_houran/blob/master/README_Assets/14.png "")
